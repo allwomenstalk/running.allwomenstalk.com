@@ -1,6 +1,12 @@
 <?xml version='1.0' encoding='utf-8'?>
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
   <url>
+    <loc>https://running.allwomenstalk.com/can-you-relate-to-these-runner-girl-problems/</loc>
+    <lastmod>2023-06-22</lastmod>
+    <changefreq>weekly</changefreq>
+    <priority>0.8</priority>
+  </url>
+  <url>
     <loc>https://running.allwomenstalk.com/tips-thatll-boost-a-beginners-progress/</loc>
     <lastmod>2023-07-09</lastmod>
     <changefreq>weekly</changefreq>
@@ -15,12 +21,6 @@
   <url>
     <loc>https://running.allwomenstalk.com/ways-that-running-will-change-your-life/</loc>
     <lastmod>2022-06-29</lastmod>
-    <changefreq>weekly</changefreq>
-    <priority>0.8</priority>
-  </url>
-  <url>
-    <loc>https://running.allwomenstalk.com/can-you-relate-to-these-runner-girl-problems/</loc>
-    <lastmod>2023-06-22</lastmod>
     <changefreq>weekly</changefreq>
     <priority>0.8</priority>
   </url>
