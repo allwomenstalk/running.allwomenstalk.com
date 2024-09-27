@@ -1,6 +1,18 @@
 <?xml version='1.0' encoding='utf-8'?>
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
   <url>
+    <loc>https://running.allwomenstalk.com/how-to-fuel-properly-for-a-marathon/</loc>
+    <lastmod>2023-08-05</lastmod>
+    <changefreq>weekly</changefreq>
+    <priority>0.8</priority>
+  </url>
+  <url>
+    <loc>https://running.allwomenstalk.com/running-speed-workouts-to-keep-you-in-shape-this-fall/</loc>
+    <lastmod>2022-08-02</lastmod>
+    <changefreq>weekly</changefreq>
+    <priority>0.8</priority>
+  </url>
+  <url>
     <loc>https://running.allwomenstalk.com/can-you-relate-to-these-runner-girl-problems/</loc>
     <lastmod>2023-06-22</lastmod>
     <changefreq>weekly</changefreq>
@@ -253,12 +265,6 @@
     <priority>0.8</priority>
   </url>
   <url>
-    <loc>https://running.allwomenstalk.com/how-to-fuel-properly-for-a-marathon/</loc>
-    <lastmod>2023-08-05</lastmod>
-    <changefreq>weekly</changefreq>
-    <priority>0.8</priority>
-  </url>
-  <url>
     <loc>https://running.allwomenstalk.com/how-to-finish-a-race-without-losing-your-wind-or-your-mind/</loc>
     <lastmod>2023-04-21</lastmod>
     <changefreq>weekly</changefreq>
@@ -279,12 +285,6 @@
   <url>
     <loc>https://running.allwomenstalk.com/the-ultimate-running-playlist-you-should-listen-to-right-now/</loc>
     <lastmod>2022-12-10</lastmod>
-    <changefreq>weekly</changefreq>
-    <priority>0.8</priority>
-  </url>
-  <url>
-    <loc>https://running.allwomenstalk.com/running-speed-workouts-to-keep-you-in-shape-this-fall/</loc>
-    <lastmod>2022-08-02</lastmod>
     <changefreq>weekly</changefreq>
     <priority>0.8</priority>
   </url>
