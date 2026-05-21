@@ -42,16 +42,16 @@ If you're a runner, how do you fuel during a run? Do tell!
 
 ## Related Posts
 
-- [11 Yoga Poses for Women Who Arent Flexible and Fit...](https://fitness.allwomenstalk.com/yoga-poses-for-women-who-arent-flexible-and-fit/)
+- [working out every single day](https://fitness.allwomenstalk.com/how-to-get-exercise-in-every-single-day/)
 - [how to get fitter running](https://running.allwomenstalk.com/how-to-get-fit-without-running-long-distance/)
+- [The Benefits of Having a Personal Trainer ...](https://fitness.allwomenstalk.com/the-benefits-of-having-a-personal-trainer/)
 - [You Need These 7 Things during Every Outdoor Worko...](https://fitness.allwomenstalk.com/you-need-these-things-during-every-outdoor-workout/)
 - [7 Ways Lifting Weights Will Help You Get Healthier...](https://fitness.allwomenstalk.com/ways-lifting-weights-will-help-you-get-healthier/)
+- [11 Yoga Poses for Women Who Arent Flexible and Fit...](https://fitness.allwomenstalk.com/yoga-poses-for-women-who-arent-flexible-and-fit/)
 - [How to Have a Germ Free Workout ...](https://health.allwomenstalk.com/how-to-have-a-germ-free-workout/)
-- [The Benefits of Having a Personal Trainer ...](https://fitness.allwomenstalk.com/the-benefits-of-having-a-personal-trainer/)
 - [benefits of being competitive](https://fitness.allwomenstalk.com/the-perks-of-being-competitive-when-it-comes-to-working-out/)
-- [7 Breathing Tips for Better Workouts ...](https://fitness.allwomenstalk.com/breathing-tips-for-better-workouts/)
 - [How to Get Fit While Balancing Your Back to School...](https://fitness.allwomenstalk.com/how-to-get-fit-while-balancing-your-back-to-school-schedule/)
-- [working out every single day](https://fitness.allwomenstalk.com/how-to-get-exercise-in-every-single-day/)
+- [7 Breathing Tips for Better Workouts ...](https://fitness.allwomenstalk.com/breathing-tips-for-better-workouts/)
 - [7 Ways to Boost Your Energy during the Day ...](https://allwomenstalk.com/7-ways-to-boost-your-energy-during-the-day/)
 - [7 Healthy Ways to Get an Energy Kick ...](https://health.allwomenstalk.com/healthy-ways-to-get-an-energy-kick/)
 

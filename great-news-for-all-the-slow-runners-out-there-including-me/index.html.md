@@ -56,16 +56,16 @@ Which of these running mistakes have you made? Me? I've made them all. Are there
 
 ## Related Posts
 
-- [Workout Prep Hacks for Girls Who Want Fast Results...](https://fitness.allwomenstalk.com/workout-prep-hacks-for-girls-who-want-fast-results-now/)
-- [commercial break workout](https://fitness.allwomenstalk.com/workouts-to-do-in-the-commercial-breaks-for-girls-who-dont-want-to-be-couch-potatoes/)
-- [the beginning of every workout should start with](https://fitness.allwomenstalk.com/things-you-should-do-before-every-workout/)
-- [Olympian Approved Tips for People Who Want to Be t...](https://running.allwomenstalk.com/olympian-approved-tips-for-people-who-want-to-be-the-best-runners/)
-- [walking for 30 minutes every day](https://fitness.allwomenstalk.com/this-is-why-you-should-walk-for-3-0-minutes-every-day/)
-- [Ways to Take Your Cardio to the Next Level with Ju...](https://fitness.allwomenstalk.com/ways-to-take-your-cardio-to-the-next-level-with-just-lb-dumbbells/)
 - [Workouts for Weight Loss That Use Your Body Weight...](https://weightloss.allwomenstalk.com/workouts-for-weight-loss-that-use-your-body-weight-no-equipment-necessary/)
 - [7 Workout Warm upand Cool down Mistakes Most Peopl...](https://fitness.allwomenstalk.com/workout-warm-upand-cool-down-mistakes-most-people-make/)
-- [This is Why Its Easier Getting in Shape in the Fal...](https://fitness.allwomenstalk.com/this-is-why-its-easier-getting-in-shape-in-the-fall-than-other-seasons/)
+- [Ways to Take Your Cardio to the Next Level with Ju...](https://fitness.allwomenstalk.com/ways-to-take-your-cardio-to-the-next-level-with-just-lb-dumbbells/)
+- [walking for 30 minutes every day](https://fitness.allwomenstalk.com/this-is-why-you-should-walk-for-3-0-minutes-every-day/)
+- [Olympian Approved Tips for People Who Want to Be t...](https://running.allwomenstalk.com/olympian-approved-tips-for-people-who-want-to-be-the-best-runners/)
+- [the beginning of every workout should start with](https://fitness.allwomenstalk.com/things-you-should-do-before-every-workout/)
 - [Hacks to Burn More Calories on Your Walks ...](https://weightloss.allwomenstalk.com/hacks-to-burn-more-calories-on-your-walks-2/)
+- [This is Why Its Easier Getting in Shape in the Fal...](https://fitness.allwomenstalk.com/this-is-why-its-easier-getting-in-shape-in-the-fall-than-other-seasons/)
+- [commercial break workout](https://fitness.allwomenstalk.com/workouts-to-do-in-the-commercial-breaks-for-girls-who-dont-want-to-be-couch-potatoes/)
+- [Workout Prep Hacks for Girls Who Want Fast Results...](https://fitness.allwomenstalk.com/workout-prep-hacks-for-girls-who-want-fast-results-now/)
 - [3 Overweight Beginner Running Tips ...](https://health.allwomenstalk.com/overweight-beginner-running-tips/)
 - [8 Extremely Useful Tips for Beginning Runners ...](https://health.allwomenstalk.com/extremely-useful-tips-for-beginning-runners/)
 

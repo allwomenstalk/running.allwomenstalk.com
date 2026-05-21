@@ -42,16 +42,16 @@ With all these tricks to make your runs easier, are you ready to get running? Re
 
 ## Related Posts
 
-- [exercises you can do at your desk](https://fitness.allwomenstalk.com/exercises-you-can-do-at-your-desk/)
-- [7 Exercises for Back Fat ...](https://fitness.allwomenstalk.com/exercises-for-back-fat/)
-- [7 Fantastic Exercises Using Resistance Bands ...](https://fitness.allwomenstalk.com/fantastic-exercises-using-resistance-bands/)
-- [7 Plyometric Moves That Burn Major Calories ...](https://fitness.allwomenstalk.com/plyometric-moves-that-burn-major-calories/)
-- [7 Exercises for Quads without Using Weights ...](https://fitness.allwomenstalk.com/exercises-for-quads-without-using-weights/)
-- [7 Times when Its Okay to Skip a Workout ...](https://fitness.allwomenstalk.com/times-when-its-okay-to-skip-a-workout/)
-- [7 Exercises to Stretch and Strengthen Your Back .....](https://fitness.allwomenstalk.com/exercises-to-stretch-and-strengthen-your-back/)
 - [7 Exercises to Get You Hot for the Holidays ...](https://fitness.allwomenstalk.com/exercises-to-get-you-hot-for-the-holidays/)
+- [7 Plyometric Moves That Burn Major Calories ...](https://fitness.allwomenstalk.com/plyometric-moves-that-burn-major-calories/)
+- [7 Times when Its Okay to Skip a Workout ...](https://fitness.allwomenstalk.com/times-when-its-okay-to-skip-a-workout/)
 - [exercising in space](https://fitness.allwomenstalk.com/easy-exercises-you-can-do-in-small-spaces/)
+- [7 Exercises for Back Fat ...](https://fitness.allwomenstalk.com/exercises-for-back-fat/)
+- [7 Exercises to Stretch and Strengthen Your Back .....](https://fitness.allwomenstalk.com/exercises-to-stretch-and-strengthen-your-back/)
+- [7 Fantastic Exercises Using Resistance Bands ...](https://fitness.allwomenstalk.com/fantastic-exercises-using-resistance-bands/)
+- [exercises you can do at your desk](https://fitness.allwomenstalk.com/exercises-you-can-do-at-your-desk/)
 - [foam roller ab workout](https://fitness.allwomenstalk.com/exercises-using-a-foam-roller/)
+- [7 Exercises for Quads without Using Weights ...](https://fitness.allwomenstalk.com/exercises-for-quads-without-using-weights/)
 - [9 Tips to Make You a Better Runner ...](https://health.allwomenstalk.com/tips-to-make-you-a-better-runner/)
 - [7 Ways to Run Faster ...](https://weightloss.allwomenstalk.com/ways-to-run-faster/)
 

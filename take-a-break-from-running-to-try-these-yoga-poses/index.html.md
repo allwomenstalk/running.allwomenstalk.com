@@ -50,16 +50,16 @@ Now all you runners out there have a great excuse to do exercise other than poun
 
 ## Related Posts
 
-- [The Positive Effects of Exercise on Your Body afte...](https://fitness.allwomenstalk.com/how-does-your-life-change-after-one-week-of-exercise/)
-- [Fab Tips to Help You Start Exercising after a Brea...](https://fitness.allwomenstalk.com/tips-for-easing-back-into-your-workout-after-a-lazy-period/)
-- [7 Steps to Having Your Most Successful Run Ever .....](https://running.allwomenstalk.com/follow-these-steps-for-your-best-run-yet/)
 - [Lazy Ladies Try to Finish These Fitness Challenges...](https://fitness.allwomenstalk.com/lazy-ladies-try-to-finish-these-fitness-challenges/)
-- [Put Your Fitness to the Test with These Challenges...](https://fitness.allwomenstalk.com/put-your-fitness-to-the-test-with-these-challenges-fitness/)
-- [10 Simple Exercises That Are Ridiculously  Easy an...](https://fitness.allwomenstalk.com/simple-exercises-that-are-ridiculously-effective/)
-- [calories burned pumping](https://fitness.allwomenstalk.com/how-to-get-your-heart-pumping-and-burn-plenty-of-fat/)
-- [This Workout Gear Inspiration Will Get You Moving ...](https://fitness.allwomenstalk.com/this-workout-gear-inspiration-will-get-you-moving/)
 - [Fitness News - LISS is the Latest Thing ...](https://fitness.allwomenstalk.com/fitness-news-liss-is-the-latest-thing/)
+- [Put Your Fitness to the Test with These Challenges...](https://fitness.allwomenstalk.com/put-your-fitness-to-the-test-with-these-challenges-fitness/)
 - [10 Workouts That Will Beat You up in a Good Way .....](https://fitness.allwomenstalk.com/workouts-that-wont-be-easy-on-you/)
+- [calories burned pumping](https://fitness.allwomenstalk.com/how-to-get-your-heart-pumping-and-burn-plenty-of-fat/)
+- [Fab Tips to Help You Start Exercising after a Brea...](https://fitness.allwomenstalk.com/tips-for-easing-back-into-your-workout-after-a-lazy-period/)
+- [10 Simple Exercises That Are Ridiculously  Easy an...](https://fitness.allwomenstalk.com/simple-exercises-that-are-ridiculously-effective/)
+- [7 Steps to Having Your Most Successful Run Ever .....](https://running.allwomenstalk.com/follow-these-steps-for-your-best-run-yet/)
+- [This Workout Gear Inspiration Will Get You Moving ...](https://fitness.allwomenstalk.com/this-workout-gear-inspiration-will-get-you-moving/)
+- [The Positive Effects of Exercise on Your Body afte...](https://fitness.allwomenstalk.com/how-does-your-life-change-after-one-week-of-exercise/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
 - [Yoga for the Time-Challenged Busy Woman ...](https://allwomenstalk.com/yoga-for-the-time-challenged-busy-woman/)
 

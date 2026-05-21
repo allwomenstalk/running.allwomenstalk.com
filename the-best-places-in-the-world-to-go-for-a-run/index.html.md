@@ -57,15 +57,15 @@ So are you ready to run for fun and explore?
 ## Related Posts
 
 - [The Very Best Places to See in the New Year ...](https://travel.allwomenstalk.com/the-very-best-places-to-see-in-the-new-year/)
-- [remarkable sculptures](https://travel.allwomenstalk.com/worlds-most-astonishing-sculptures-every-cultured-girl-must-see/)
-- [best places to watch solar eclipse](https://travel.allwomenstalk.com/of-the-best-places-in-america-to-watch-the-total-solar-eclipse-this-august/)
-- [green landmarks](https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/)
 - [17 New Tourist Attractions for 2016 ...](https://travel.allwomenstalk.com/new-tourist-attractions-for/)
+- [The Best Places to Drink Beer on St. Patricks Day ...](https://travel.allwomenstalk.com/the-best-places-to-drink-beer-on-st-patricks-day/)
 - [offbeat places in europe](https://travel.allwomenstalk.com/offbeat-places-in-europe-to-visit/)
+- [green landmarks](https://travel.allwomenstalk.com/iconic-landmarks-that-celebrate-st-patricks-day-by-going-green/)
+- [remarkable sculptures](https://travel.allwomenstalk.com/worlds-most-astonishing-sculptures-every-cultured-girl-must-see/)
 - [The European Refugee Crisis in Pictures ...](https://lifestyle.allwomenstalk.com/the-european-refugee-crisis-in-pictures/)
 - [paris for art lovers](https://travel.allwomenstalk.com/places-in-paris-for-art-lovers-other-than-the-louvre/)
+- [best places to watch solar eclipse](https://travel.allwomenstalk.com/of-the-best-places-in-america-to-watch-the-total-solar-eclipse-this-august/)
 - [7 Green Places to Visit if You Want to Find Inner ...](https://inspiration.allwomenstalk.com/green-spaces-to-find-inner-peace/)
-- [The Best Places to Drink Beer on St. Patricks Day ...](https://travel.allwomenstalk.com/the-best-places-to-drink-beer-on-st-patricks-day/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [3 Amazing Cities: a Runners Paradise ...](https://travel.allwomenstalk.com/amazing-cities-a-runners-paradise/)
 

@@ -42,15 +42,15 @@ Hope you have enjoyed this 7 week plan to quicken your running times. Are you re
 
 ## Related Posts
 
-- [7 Things to Consider before Signing up for a Yoga ...](https://fitness.allwomenstalk.com/things-to-consider-before-signing-up-for-a-yoga-class/)
-- [do cartwheels burn calories](https://fitness.allwomenstalk.com/kid-friendly-activities-that-also-give-you-a-great-workout/)
-- [7 Ways to Push Yourself to Run when You do Not Fee...](https://running.allwomenstalk.com/ways-to-push-yourself-to-run-when-you-do-not-feel-like-running/)
-- [7 Fun Exercises if You Hate the Gym ...](https://fitness.allwomenstalk.com/fun-exercises-if-you-hate-the-gym/)
 - [7 Ways to Recover from a Running Injury ...](https://running.allwomenstalk.com/ways-to-recover-from-a-running-injury/)
+- [7 Ways to Push Yourself with New Fitness Routines ...](https://fitness.allwomenstalk.com/ways-to-push-yourself-with-new-fitness-routines/)
+- [7 Fun Exercises if You Hate the Gym ...](https://fitness.allwomenstalk.com/fun-exercises-if-you-hate-the-gym/)
+- [7 Things to Consider before Signing up for a Yoga ...](https://fitness.allwomenstalk.com/things-to-consider-before-signing-up-for-a-yoga-class/)
 - [7 Rules on Weight Training for Women ...](https://fitness.allwomenstalk.com/rules-on-weight-training-for-women/)
 - [7 Tips on How to Start a Fitness Regime ...](https://fitness.allwomenstalk.com/tips-on-how-to-start-a-fitness-regime/)
+- [7 Ways to Push Yourself to Run when You do Not Fee...](https://running.allwomenstalk.com/ways-to-push-yourself-to-run-when-you-do-not-feel-like-running/)
+- [do cartwheels burn calories](https://fitness.allwomenstalk.com/kid-friendly-activities-that-also-give-you-a-great-workout/)
 - [7 Ways to Take a Break from Intense Workouts and S...](https://fitness.allwomenstalk.com/ways-to-take-a-break-from-intense-workouts-and-still-get-a-great-workout/)
-- [7 Ways to Push Yourself with New Fitness Routines ...](https://fitness.allwomenstalk.com/ways-to-push-yourself-with-new-fitness-routines/)
 - [7 Ways to Sculpt Your Abs ...](https://fitness.allwomenstalk.com/ways-to-sculpt-your-abs/)
 - [7 Ways to Run Faster ...](https://weightloss.allwomenstalk.com/ways-to-run-faster/)
 - [7 Tips on How to Start Running ...](https://weightloss.allwomenstalk.com/tips-on-how-to-start-running-2/)
