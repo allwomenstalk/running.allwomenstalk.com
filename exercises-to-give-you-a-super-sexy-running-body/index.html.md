@@ -42,16 +42,16 @@ Good luck with all of these great exercises. Make sure you stick with it and wor
 
 ## Related Posts
 
-- [The Busy Girls Guide to Starting Yoga ...](https://health.allwomenstalk.com/the-busy-girls-guide-to-starting-yoga/)
-- [7 Ways Exercise Can Boost Other Areas of Your Life...](https://health.allwomenstalk.com/ways-exercise-can-boost-other-areas-of-your-life-too/)
-- [7 Workouts for a Body to Rock Any Outfit like a Ce...](https://fitness.allwomenstalk.com/workouts-for-a-body-to-rock-any-outfit-like-a-celebrity/)
 - [13 Awesome Pieces of Home Exercise Equipment ...](https://fitness.allwomenstalk.com/awesome-pieces-of-home-exercise-equipment/)
 - [7 Exercises to up the Intensity of Your Workouts ....](https://fitness.allwomenstalk.com/exercises-to-up-the-intensity-of-your-workouts/)
-- [7 Exercises to Help You Build up Your Running Dist...](https://fitness.allwomenstalk.com/exercises-to-help-you-build-up-your-running-distance-increase-speed-fitness/)
-- [7 Fitness Inspirations for 2015 ...](https://inspiration.allwomenstalk.com/fitness-inspirations-for/)
+- [7 Ways Exercise Can Boost Other Areas of Your Life...](https://health.allwomenstalk.com/ways-exercise-can-boost-other-areas-of-your-life-too/)
+- [The Busy Girls Guide to Starting Yoga ...](https://health.allwomenstalk.com/the-busy-girls-guide-to-starting-yoga/)
 - [7 Resolutions to Commit to That Will Take Your Wor...](https://fitness.allwomenstalk.com/resolutions-to-commit-to-that-willtake-your-workout-to-the-next-level/)
 - [7 Excuses Not to Use to Skip Your Workout ...](https://fitness.allwomenstalk.com/excuses-not-to-use-to-skip-your-workout/)
+- [7 Workouts for a Body to Rock Any Outfit like a Ce...](https://fitness.allwomenstalk.com/workouts-for-a-body-to-rock-any-outfit-like-a-celebrity/)
+- [7 Fitness Inspirations for 2015 ...](https://inspiration.allwomenstalk.com/fitness-inspirations-for/)
 - [cool workout gadgets](https://fitness.allwomenstalk.com/workout-gadgets-you-should-consider/)
+- [7 Exercises to Help You Build up Your Running Dist...](https://fitness.allwomenstalk.com/exercises-to-help-you-build-up-your-running-distance-increase-speed-fitness/)
 - [7 Exercises to Tone Your Legs ...](https://allwomenstalk.com/8-exercises-to-tone-your-legs/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 

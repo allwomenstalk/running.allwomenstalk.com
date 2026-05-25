@@ -84,16 +84,16 @@ Now that you’ve loaded all of these songs into your iPod, what are you waiting
 
 ## Related Posts
 
-- [7 Amazing British Artists That Youll Fall in Love ...](https://music.allwomenstalk.com/amazing-british-artists-that-youll-fall-in-love-with/)
 - [7 Most Anticipated Album Releases for Fall 2013 .....](https://music.allwomenstalk.com/most-anticipated-album-releases-for-fall/)
-- [7 Classic Beatles Songs That Helped Reinvent the M...](https://music.allwomenstalk.com/classic-beatles-songs-that-helped-reinvent-the-music-industry/)
-- [7 of the Most Artistic Breakout Musicians of 2013 ...](https://music.allwomenstalk.com/of-the-most-artistic-breakout-musicians-of/)
-- [7 Songs to Add to Your Travel Playlist ...](https://music.allwomenstalk.com/songs-to-add-to-your-travel-playlist/)
-- [7 Awesome Movie Soundtracks That Are Better than A...](https://movies.allwomenstalk.com/awesome-movie-soundtracks-that-are-better-than-any-album/)
-- [9 Swoon-Worthy Love Tunes to Put on Your Playlist ...](https://music.allwomenstalk.com/swoon-worthy-love-tunes-to-put-on-your-playlist/)
-- [list of indie bands](https://music.allwomenstalk.com/indie-artists-you-just-need-to-have-on-your-ipod/)
-- [7 Festive Holiday Soundtracks to Get You in the Mo...](https://music.allwomenstalk.com/festive-holiday-soundtracks-to-get-you-in-the-mood/)
 - [7 Best Ways to Discover New Music That Youll Keep ...](https://music.allwomenstalk.com/best-ways-to-discover-new-music-that-youll-keep-on-repeat/)
+- [7 Awesome Movie Soundtracks That Are Better than A...](https://movies.allwomenstalk.com/awesome-movie-soundtracks-that-are-better-than-any-album/)
+- [7 Classic Beatles Songs That Helped Reinvent the M...](https://music.allwomenstalk.com/classic-beatles-songs-that-helped-reinvent-the-music-industry/)
+- [7 Festive Holiday Soundtracks to Get You in the Mo...](https://music.allwomenstalk.com/festive-holiday-soundtracks-to-get-you-in-the-mood/)
+- [7 of the Most Artistic Breakout Musicians of 2013 ...](https://music.allwomenstalk.com/of-the-most-artistic-breakout-musicians-of/)
+- [7 Amazing British Artists That Youll Fall in Love ...](https://music.allwomenstalk.com/amazing-british-artists-that-youll-fall-in-love-with/)
+- [9 Swoon-Worthy Love Tunes to Put on Your Playlist ...](https://music.allwomenstalk.com/swoon-worthy-love-tunes-to-put-on-your-playlist/)
+- [7 Songs to Add to Your Travel Playlist ...](https://music.allwomenstalk.com/songs-to-add-to-your-travel-playlist/)
+- [list of indie bands](https://music.allwomenstalk.com/indie-artists-you-just-need-to-have-on-your-ipod/)
 - [10 Fantastic Driving Songs ...](https://travel.allwomenstalk.com/10-fantastic-driving-songs/)
 - [7 Excellent Motivational and up-Lifting Songs ...](https://lifestyle.allwomenstalk.com/motivational-up-lifting-songs/)
 

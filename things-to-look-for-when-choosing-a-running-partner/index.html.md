@@ -42,16 +42,16 @@ I know this was a long list of things to look for in a running partner, some of 
 
 ## Related Posts
 
-- [7 Dating Sins to Stop Committing Right Now ...](https://love.allwomenstalk.com/dating-sins-to-stop-committing-right-now-2/)
-- [7 Best Times to Be in a Relationship ...](https://funny.allwomenstalk.com/best-times-to-be-in-a-relationship/)
-- [why cant i get a boyfriend](https://love.allwomenstalk.com/things-that-getting-a-boyfriend-wont-fix/)
-- [7 Interesting Ways a Marriage Changes You ...](https://love.allwomenstalk.com/interesting-ways-a-marriage-changes-you/)
-- [7 Things a Therapist Says You Must Know before Tyi...](https://love.allwomenstalk.com/things-a-therapist-says-you-must-know-before-tying-the-knot/)
-- [7 Ways the Dating Game Changes as You Get Older .....](https://love.allwomenstalk.com/ways-the-dating-game-changes-as-you-get-older/)
 - [7 Toxic Relationship Habits That do More Damage th...](https://love.allwomenstalk.com/toxic-relationship-habits-that-do-more-damage-than-you-think/)
 - [7 Points in Favor of  Pre-Marital Counseling ...](https://wedding.allwomenstalk.com/points-in-favor-of-taking-pre-marital-counseling/)
-- [7 Things Every Single Person Should Know about Onl...](https://love.allwomenstalk.com/things-every-single-person-should-know-about-online-dating/)
+- [why cant i get a boyfriend](https://love.allwomenstalk.com/things-that-getting-a-boyfriend-wont-fix/)
 - [7 Very Popular Myths about Relationships That Aren...](https://love.allwomenstalk.com/very-popular-myths-about-relationships-that-arent-true/)
+- [7 Interesting Ways a Marriage Changes You ...](https://love.allwomenstalk.com/interesting-ways-a-marriage-changes-you/)
+- [7 Dating Sins to Stop Committing Right Now ...](https://love.allwomenstalk.com/dating-sins-to-stop-committing-right-now-2/)
+- [7 Things Every Single Person Should Know about Onl...](https://love.allwomenstalk.com/things-every-single-person-should-know-about-online-dating/)
+- [7 Best Times to Be in a Relationship ...](https://funny.allwomenstalk.com/best-times-to-be-in-a-relationship/)
+- [7 Things a Therapist Says You Must Know before Tyi...](https://love.allwomenstalk.com/things-a-therapist-says-you-must-know-before-tying-the-knot/)
+- [7 Ways the Dating Game Changes as You Get Older .....](https://love.allwomenstalk.com/ways-the-dating-game-changes-as-you-get-older/)
 - [7 Tips for Choosing a Travel Buddy ...](https://travel.allwomenstalk.com/tips-for-choosing-a-travel-buddy/)
 - [7 Places to Find a Great Partner ...](https://allwomenstalk.com/7-places-to-find-a-great-partner/)
 

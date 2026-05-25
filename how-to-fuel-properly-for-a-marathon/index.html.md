@@ -90,14 +90,14 @@ You have successfully crossed the finish line. Post race party time is here. Whe
 
 - [5 Steps to Help You Prepare for a 5K ...](https://running.allwomenstalk.com/5-steps-to-prepare-for-a-5k/)
 - [Pro Tips for Making Better Connections with People...](https://inspiration.allwomenstalk.com/how-to-make-better-connections/)
-- [7 Tips on Beating Shyness to Be More Confident ...](https://inspiration.allwomenstalk.com/ways-to-deal-with-shyness-to-be-more-confident/)
 - [10 Exceptional Tips to Gain More Confidence ...](https://inspiration.allwomenstalk.com/tips-to-help-you-gain-more-confidence/)
-- [7 Ways to Improve Your Website Content ...](https://money.allwomenstalk.com/ways-to-improve-your-website-content/)
+- [5 tips to be a successful entrepreneur](https://money.allwomenstalk.com/tips-for-being-a-successful-entrepreneur/)
 - [Video Guide with Meditation Tips for Beginners ...](https://health.allwomenstalk.com/meditation-tips-for-beginners-3/)
 - [Excellent Advice on Ways to Reduce Screen Fatigue ...](https://health.allwomenstalk.com/ways-to-reduce-screen-fatigue/)
 - [Pro Tips on How to Be a Better Customer ...](https://money.allwomenstalk.com/how-to-be-a-better-customer/)
-- [5 tips to be a successful entrepreneur](https://money.allwomenstalk.com/tips-for-being-a-successful-entrepreneur/)
+- [7 Ways to Improve Your Website Content ...](https://money.allwomenstalk.com/ways-to-improve-your-website-content/)
 - [Awesome Tips to Be More Confident in Your Writing ...](https://books.allwomenstalk.com/tips-to-be-more-confident-in-your-writing/)
+- [7 Tips on Beating Shyness to Be More Confident ...](https://inspiration.allwomenstalk.com/ways-to-deal-with-shyness-to-be-more-confident/)
 - [Practical Tips on How to Start Jogging ...](https://allwomenstalk.com/practical-tips-on-how-to-start-jogging/)
 - [7 Tips on How to Stay Hydrated for Your Workout .....](https://health.allwomenstalk.com/tips-on-how-to-stay-hydrated-for-your-workout/)
 
