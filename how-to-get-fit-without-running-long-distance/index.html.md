@@ -3,7 +3,7 @@ title: "How to Get Fit without Running Long Distance ..."
 description: "Running Short Distance; Running Hills; Run the Trails; Head to the Track; Cross Train; More ..."
 url: "https://running.allwomenstalk.com/how-to-get-fit-without-running-long-distance/"
 category: "running"
-last_updated: "2026-05-21"
+last_updated: "2026-05-25"
 ---
 
 # How to Get Fit without Running Long Distance ...
@@ -54,16 +54,16 @@ So skip the long run and choose one of these workouts for every day of the week.
 
 ## Related Posts
 
-- [7 Ways to Create a Workout Youll Love ...](https://fitness.allwomenstalk.com/ways-to-create-a-workout-youll-love/)
-- [benefits of being competitive](https://fitness.allwomenstalk.com/the-perks-of-being-competitive-when-it-comes-to-working-out/)
-- [How to Get the Most out of Having a Personal Train...](https://fitness.allwomenstalk.com/how-to-get-the-most-out-of-having-a-personal-trainer/)
-- [yoga for work](https://fitness.allwomenstalk.com/yoga-poses-you-can-do-at-work/)
 - [New Ways You Can Learn to Love Your Workout ...](https://fitness.allwomenstalk.com/new-ways-you-can-learn-to-love-your-workout/)
-- [How to Work out when You Have an Injury ...](https://fitness.allwomenstalk.com/how-to-work-out-when-you-have-an-injury/)
+- [How to Get the Most out of Having a Personal Train...](https://fitness.allwomenstalk.com/how-to-get-the-most-out-of-having-a-personal-trainer/)
 - [The Benefits of Having a Personal Trainer ...](https://fitness.allwomenstalk.com/the-benefits-of-having-a-personal-trainer/)
-- [10 min ab sculpting workout](https://fitness.allwomenstalk.com/the-one-video-thatll-give-you-flat-abs/)
+- [yoga for work](https://fitness.allwomenstalk.com/yoga-poses-you-can-do-at-work/)
 - [get fit](https://fitness.allwomenstalk.com/how-to-get-fit-in-nyc/)
+- [benefits of being competitive](https://fitness.allwomenstalk.com/the-perks-of-being-competitive-when-it-comes-to-working-out/)
+- [7 Ways to Create a Workout Youll Love ...](https://fitness.allwomenstalk.com/ways-to-create-a-workout-youll-love/)
 - [meerkat full body](https://fitness.allwomenstalk.com/why-you-should-all-work-out-with-me-on-meerkat/)
+- [10 min ab sculpting workout](https://fitness.allwomenstalk.com/the-one-video-thatll-give-you-flat-abs/)
+- [How to Work out when You Have an Injury ...](https://fitness.allwomenstalk.com/how-to-work-out-when-you-have-an-injury/)
 - [10 Cheap Ways to Stay Fit ...](https://health.allwomenstalk.com/10-cheap-ways-to-stay-fit/)
 - [Practical Tips on How to Start Jogging ...](https://allwomenstalk.com/practical-tips-on-how-to-start-jogging/)
 
