@@ -50,16 +50,16 @@ My first Color Run was just this year and it was a blast! There is a reason why 
 
 ## Related Posts
 
-- [The Simplest Most Effective Rules of Expert Negoti...](https://money.allwomenstalk.com/simple-rules-of-expert-negotiation/)
-- [7 Safety Tips for Runners ...](https://running.allwomenstalk.com/safety-tips-for-runners/)
-- [7 New Tips for Great Presentations ...](https://lifestyle.allwomenstalk.com/new-tips-for-great-presentations/)
-- [study group tips](https://teen.allwomenstalk.com/tips-for-successful-study-groups/)
-- [The Most Attention Grabbing Ways to Begin an Essay...](https://teen.allwomenstalk.com/attention-grabbing-ways-to-begin-an-essay/)
-- [running in the rain](https://running.allwomenstalk.com/tips-for-running-in-the-rain/)
-- [stay flexible](https://fitness.allwomenstalk.com/tips-to-help-you-stay-flexible/)
-- [7 Leadership Tips for the New Generation ...](https://teen.allwomenstalk.com/leadership-tips-for-the-new-generation/)
-- [7 Secrets of a Stellar Recommendation Letter ...](https://teen.allwomenstalk.com/secrets-of-a-stellar-recommendation-letter/)
 - [7 Ways to Improve Your Speed Reading Skills ...](https://books.allwomenstalk.com/ways-to-improve-your-speed-reading-skills/)
+- [running in the rain](https://running.allwomenstalk.com/tips-for-running-in-the-rain/)
+- [The Most Attention Grabbing Ways to Begin an Essay...](https://teen.allwomenstalk.com/attention-grabbing-ways-to-begin-an-essay/)
+- [7 Secrets of a Stellar Recommendation Letter ...](https://teen.allwomenstalk.com/secrets-of-a-stellar-recommendation-letter/)
+- [7 Safety Tips for Runners ...](https://running.allwomenstalk.com/safety-tips-for-runners/)
+- [stay flexible](https://fitness.allwomenstalk.com/tips-to-help-you-stay-flexible/)
+- [7 New Tips for Great Presentations ...](https://lifestyle.allwomenstalk.com/new-tips-for-great-presentations/)
+- [The Simplest Most Effective Rules of Expert Negoti...](https://money.allwomenstalk.com/simple-rules-of-expert-negotiation/)
+- [7 Leadership Tips for the New Generation ...](https://teen.allwomenstalk.com/leadership-tips-for-the-new-generation/)
+- [study group tips](https://teen.allwomenstalk.com/tips-for-successful-study-groups/)
 - [7 Tips for DIY Hair Dye ...](https://hair.allwomenstalk.com/tips-for-diy-hair-dye/)
 - [10 Tips for Colouring Your Hair at Home ...](https://allwomenstalk.com/10-tips-for-colouring-your-hair-at-home/)
 

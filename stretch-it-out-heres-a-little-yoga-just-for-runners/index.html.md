@@ -130,16 +130,16 @@ Source: [Yoga for Runners](http://power.networksolutions.com/index.html)
 
 ## Related Posts
 
-- [Heres How Every Girl Can Stay Fit when Visiting Th...](https://travel.allwomenstalk.com/the-best-city-breaks-for-fitness-fanatics/)
-- [7 Moves for a Perfect Day of Fitness ...](https://fitness.allwomenstalk.com/moves-for-a-perfect-day-of-fitness/)
+- [Exhilarating  New Workouts for Girls Bored of Rout...](https://fitness.allwomenstalk.com/eclectic-workouts-for-fitness-variety/)
 - [Here Are the Workout Tips That Will Improve Your S...](https://fitness.allwomenstalk.com/here-are-the-workout-tips-that-will-improve-your-sweattitude/)
 - [7 Plank Variations to Sculpt and Strengthen Your C...](https://fitness.allwomenstalk.com/plank-variations-to-sculpt-and-strengthen-your-core/)
-- [Exhilarating  New Workouts for Girls Bored of Rout...](https://fitness.allwomenstalk.com/eclectic-workouts-for-fitness-variety/)
 - [Dont Love Your Fitbit Check out These 7 Other Fitn...](https://gadgets.allwomenstalk.com/dont-love-your-fitbit-check-out-these-other-fitness-trackers-instead/)
-- [Turbo-Charged Outdoor Exercises to Get Fit and Fab...](https://weightloss.allwomenstalk.com/awesome-weight-loss-exercises-for-when-you-are-outdoors/)
 - [no sweat exercise for weight loss](https://fitness.allwomenstalk.com/no-sweat-tips-for-exercising-in-hot-weather/)
-- [Give Your Arms Your All with These 7 Workouts ...](https://fitness.allwomenstalk.com/give-your-arms-your-all-with-these-workouts/)
+- [Turbo-Charged Outdoor Exercises to Get Fit and Fab...](https://weightloss.allwomenstalk.com/awesome-weight-loss-exercises-for-when-you-are-outdoors/)
 - [how to gain weignt](https://fitness.allwomenstalk.com/top-fitness-moves-models-dont-tell-us/)
+- [Heres How Every Girl Can Stay Fit when Visiting Th...](https://travel.allwomenstalk.com/the-best-city-breaks-for-fitness-fanatics/)
+- [Give Your Arms Your All with These 7 Workouts ...](https://fitness.allwomenstalk.com/give-your-arms-your-all-with-these-workouts/)
+- [7 Moves for a Perfect Day of Fitness ...](https://fitness.allwomenstalk.com/moves-for-a-perfect-day-of-fitness/)
 - [Yoga for the Time-Challenged Busy Woman ...](https://allwomenstalk.com/yoga-for-the-time-challenged-busy-woman/)
 - [7 Amazing Stretches to Relieve Stress ...](https://health.allwomenstalk.com/amazing-stretches-to-relieve-stress/)
 

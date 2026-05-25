@@ -96,16 +96,16 @@ Sometimes all you need is a little Nicki to finish your run.
 
 ## Related Posts
 
-- [7 Vinyls That You Should Add to Your Record Collec...](https://music.allwomenstalk.com/vinyls-that-you-should-add-to-your-record-collection/)
-- [These Are the Most Stunning Music Videos of 2015 ....](https://music.allwomenstalk.com/these-are-the-most-stunning-music-videos-of/)
 - [shania twain christmas songs](https://music.allwomenstalk.com/new-christmas-songs-to-add-to-your-playlist/)
-- [Calming Music Tracks to Listen to when You Need So...](https://music.allwomenstalk.com/music-tracks-for-those-who-want-to-feel-calm/)
-- [legendary imagine dragons](https://running.allwomenstalk.com/these-are-the-most-legendary-songs-for-your-running-playlist/)
 - [25 Artists That Are Going to Hit It Big in 2017 .....](https://music.allwomenstalk.com/artists-that-are-going-to-hit-it-big-in-2017/)
+- [Calming Music Tracks to Listen to when You Need So...](https://music.allwomenstalk.com/music-tracks-for-those-who-want-to-feel-calm/)
 - [Great Songs to Add to a Workout Playlist for Kille...](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-2/)
-- [The Best Movie Musicals for Girls Who Just Gotta S...](https://bilbr.com/the-best-movie-musicals-for-girls-who-just-gotta-sing/)
+- [7 Vinyls That You Should Add to Your Record Collec...](https://music.allwomenstalk.com/vinyls-that-you-should-add-to-your-record-collection/)
 - [Great Songs to Add to a Workout Playlist for Kille...](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist/)
+- [These Are the Most Stunning Music Videos of 2015 ....](https://music.allwomenstalk.com/these-are-the-most-stunning-music-videos-of/)
+- [The Best Movie Musicals for Girls Who Just Gotta S...](https://bilbr.com/the-best-movie-musicals-for-girls-who-just-gotta-sing/)
 - [10 Podcasts to Listen to during Your Run ...](https://running.allwomenstalk.com/podcasts-to-listen-to-during-your-run-today/)
+- [legendary imagine dragons](https://running.allwomenstalk.com/these-are-the-most-legendary-songs-for-your-running-playlist/)
 - [8 Modern Albums You Should Listen to ...](https://allwomenstalk.com/8-modern-albums-you-should-listen-to/)
 - [7 New Songs 2012 on My Running Playlist ...](https://lifestyle.allwomenstalk.com/new-songs-on-my-running-playlist/)
 

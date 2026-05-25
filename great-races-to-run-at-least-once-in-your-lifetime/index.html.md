@@ -42,16 +42,16 @@ Now that you know of a few great races you should definitely run at least once i
 
 ## Related Posts
 
-- [7 Great Family Vacation Ideas That You Should Try ...](https://parenting.allwomenstalk.com/great-family-vacation-ideas-that-you-should-try/)
-- [fun girl trips](https://travel.allwomenstalk.com/super-fun-trips-to-take-with-your-girlfriends/)
-- [7 Handsome Beaches of Hawaii for Halcyon Days ...](https://travel.allwomenstalk.com/handsome-beaches-of-hawaii-for-halcyon-days/)
-- [7 Best European Destinations for Cycling Enthusias...](https://travel.allwomenstalk.com/best-european-destinations-for-cycling-enthusiasts/)
-- [9 Tantalizing Beaches of Turkey That Will Delight ...](https://travel.allwomenstalk.com/tantalizing-beaches-of-turkey-that-will-delight-you/)
-- [7 Best Luxury Hotels Fit for a Queen ...](https://travel.allwomenstalk.com/best-luxury-hotels-fit-for-a-queen/)
 - [best multi generational family vacations usa](https://travel.allwomenstalk.com/brilliant-us-destinations-for-a-multi-generational-family-vacation/)
-- [7 Fabulous Destinations with Kid-Friendly Food ...](https://travel.allwomenstalk.com/fabulous-destinations-with-kid-friendly-food/)
-- [7 Gorgeous Greek Island Beaches for Serious RR ...](https://travel.allwomenstalk.com/gorgeous-greek-island-beaches-for-serious-rr/)
+- [7 Great Family Vacation Ideas That You Should Try ...](https://parenting.allwomenstalk.com/great-family-vacation-ideas-that-you-should-try/)
+- [7 Best European Destinations for Cycling Enthusias...](https://travel.allwomenstalk.com/best-european-destinations-for-cycling-enthusiasts/)
+- [7 Handsome Beaches of Hawaii for Halcyon Days ...](https://travel.allwomenstalk.com/handsome-beaches-of-hawaii-for-halcyon-days/)
+- [9 Tantalizing Beaches of Turkey That Will Delight ...](https://travel.allwomenstalk.com/tantalizing-beaches-of-turkey-that-will-delight-you/)
+- [fun girl trips](https://travel.allwomenstalk.com/super-fun-trips-to-take-with-your-girlfriends/)
 - [7 Iconic Railway Trips That Capture Yesteryear Tra...](https://travel.allwomenstalk.com/iconic-railway-trips-that-capture-yesteryear-travel/)
+- [7 Best Luxury Hotels Fit for a Queen ...](https://travel.allwomenstalk.com/best-luxury-hotels-fit-for-a-queen/)
+- [7 Gorgeous Greek Island Beaches for Serious RR ...](https://travel.allwomenstalk.com/gorgeous-greek-island-beaches-for-serious-rr/)
+- [7 Fabulous Destinations with Kid-Friendly Food ...](https://travel.allwomenstalk.com/fabulous-destinations-with-kid-friendly-food/)
 - [7 River Trips of a Lifetime ...](https://travel.allwomenstalk.com/river-trips-of-a-lifetime/)
 - [7 Fun 5k Races to Run ...](https://health.allwomenstalk.com/fun-5k-races-to-run/)
 
