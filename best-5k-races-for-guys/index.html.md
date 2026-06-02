@@ -3,7 +3,7 @@ title: "7 Best 5k Races for Guys ..."
 description: "Warrior Dash; Spartan Race; Muddy Buddy; Tough Mudder; Run for Your Lives; More ..."
 url: "https://running.allwomenstalk.com/best-5k-races-for-guys/"
 category: "running"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Best 5k Races for Guys ...
@@ -58,15 +58,15 @@ I’m sure there are lots of local races catering to the male runner – many of
 ## Related Posts
 
 - [7 Fitness Basics for New Exercisers ...](https://fitness.allwomenstalk.com/fitness-basics-for-new-exercisers/)
-- [8 Limbs of Yoga and How to Deepen Your Practice .....](https://fitene.com/limbs-of-yoga-and-how-to-deepen-your-practice/)
-- [low impact workouts that burn a lot of calories](https://fitness.allwomenstalk.com/low-impact-workouts-that-still-burn-a-lot-of-calories/)
+- [top fitness questions](https://fitness.allwomenstalk.com/answers-to-your-fitness-questions/)
 - [7 Steps to Help You Run Longer Distances ...](https://running.allwomenstalk.com/steps-to-help-you-run-longer-distances/)
-- [morning foam roller routine](https://fitness.allwomenstalk.com/effective-foam-roller-exercises-for-you-to-try-today/)
-- [7 Hand Mudras You Can Incorporate into Your Yoga P...](https://health.allwomenstalk.com/hand-mudras-you-can-incorporate-into-your-yoga-practice-today/)
-- [7 Reasons It is Okay to Be Sore after a Workout .....](https://fitness.allwomenstalk.com/reasons-it-is-okay-to-be-sore-after-a-workout/)
 - [7 Stretches for when Youre Sore after Running ...](https://running.allwomenstalk.com/stretches-for-when-youre-sore-after-running/)
 - [7 Fit Ways to Enjoy Your Outdoor Workouts ...](https://fitness.allwomenstalk.com/fit-ways-to-enjoy-your-outdoor-workouts/)
-- [top fitness questions](https://fitness.allwomenstalk.com/answers-to-your-fitness-questions/)
+- [8 Limbs of Yoga and How to Deepen Your Practice .....](https://fitene.com/limbs-of-yoga-and-how-to-deepen-your-practice/)
+- [7 Hand Mudras You Can Incorporate into Your Yoga P...](https://health.allwomenstalk.com/hand-mudras-you-can-incorporate-into-your-yoga-practice-today/)
+- [low impact workouts that burn a lot of calories](https://fitness.allwomenstalk.com/low-impact-workouts-that-still-burn-a-lot-of-calories/)
+- [7 Reasons It is Okay to Be Sore after a Workout .....](https://fitness.allwomenstalk.com/reasons-it-is-okay-to-be-sore-after-a-workout/)
+- [morning foam roller routine](https://fitness.allwomenstalk.com/effective-foam-roller-exercises-for-you-to-try-today/)
 - [7 Tips for a Jogging Date ...](https://health.allwomenstalk.com/7-tips-for-a-jogging-date/)
 - [5 Fun Dates Your Guy Will Love ...](https://love.allwomenstalk.com/fun-dates-your-guy-will-love/)
 
