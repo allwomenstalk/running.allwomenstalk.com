@@ -3,7 +3,7 @@ title: "8 Great Running Programs for Kids ..."
 description: "Kids Run the Nation; Girls on the Run; Hershey’s Track and Field Games; USATF Junior Olympics; Morning Mile; More ..."
 url: "https://running.allwomenstalk.com/great-running-programs-for-kids/"
 category: "running"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 8 Great Running Programs for Kids ...
@@ -53,16 +53,16 @@ There are also loads of local kid’s running programs, so do a little poking ar
 
 ## Related Posts
 
-- [9 Ways to Talk to Your Child about Weight ...](https://parenting.allwomenstalk.com/ways-to-talk-to-your-child-about-weight/)
 - [7 Ways to Get the Most out of the Beach with the K...](https://parenting.allwomenstalk.com/ways-to-get-the-most-out-of-the-beach-with-the-kids/)
-- [7 Important Reasons to Read with Your Children ...](https://parenting.allwomenstalk.com/important-reasons-to-read-with-your-children/)
-- [7 Benefits of Long Term Travel for Kids ...](https://travel.allwomenstalk.com/benefits-of-long-term-travel-for-kids/)
 - [8 Important Ways to Childproof Your Home Today ...](https://parenting.allwomenstalk.com/ways-to-childproof-your-home/)
-- [7 Ways to Manage Working from Home with Kids ...](https://parenting.allwomenstalk.com/ways-to-manage-working-from-home-with-kids/)
 - [7 Causes of Tension in Children That You Should Kn...](https://parenting.allwomenstalk.com/causes-of-tension-in-children-that-you-should-know-about/)
-- [7 Common Behavior Problems of Children That You Sh...](https://parenting.allwomenstalk.com/common-behavior-problems-of-children/)
-- [7 Cute Kid's Birthday Themes That They Will Love ....](https://parenting.allwomenstalk.com/cute-kids-birthday-themes-that-they-will-love/)
+- [9 Ways to Talk to Your Child about Weight ...](https://parenting.allwomenstalk.com/ways-to-talk-to-your-child-about-weight/)
 - [7 Ways to Keep Your Kids Occupied on Long Road Tri...](https://parenting.allwomenstalk.com/ways-to-keep-your-kids-occupied-on-long-road-trips/)
+- [7 Important Reasons to Read with Your Children ...](https://parenting.allwomenstalk.com/important-reasons-to-read-with-your-children/)
+- [7 Common Behavior Problems of Children That You Sh...](https://parenting.allwomenstalk.com/common-behavior-problems-of-children/)
+- [7 Benefits of Long Term Travel for Kids ...](https://travel.allwomenstalk.com/benefits-of-long-term-travel-for-kids/)
+- [7 Cute Kid's Birthday Themes That They Will Love ....](https://parenting.allwomenstalk.com/cute-kids-birthday-themes-that-they-will-love/)
+- [7 Ways to Manage Working from Home with Kids ...](https://parenting.allwomenstalk.com/ways-to-manage-working-from-home-with-kids/)
 - [8 Games You Can Play with Your Kids ...](https://parenting.allwomenstalk.com/8-games-you-can-play-with-your-kids/)
 - [8 Fun Things to do with Your Kids ...](https://allwomenstalk.com/8-fun-things-to-do-with-your-kids/)
 
