@@ -3,7 +3,7 @@ title: "5 Phenomenal Female Runners to Follow on Instagram ASAP ..."
 description: "Amy Lane (@wellness_ed); Adrienne LDN (@adrienne_ldn); Susie Chan (@susie_chan); Emma Kirk Odubundi (@emmakirkyo); Charlie Running (@therunnerbeans); More ..."
 url: "https://running.allwomenstalk.com/phenomenal-female-runners-to-follow-on-instagram-asap/"
 category: "running"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 5 Phenomenal Female Runners to Follow on Instagram ASAP ...
