@@ -3,7 +3,7 @@ title: "Yoga Poses to Try when You Need a Break from Running ..."
 description: "Downward and Upward Facing Dog; Twisting Chair; Head to Knee; Figure 4; Seated Wide Angle; More ..."
 url: "https://running.allwomenstalk.com/take-a-break-from-running-to-try-these-yoga-poses/"
 category: "running"
-last_updated: "2026-06-16"
+last_updated: "2026-06-17"
 ---
 
 # Yoga Poses to Try when You Need a Break from Running ...
@@ -50,15 +50,15 @@ Now all you runners out there have a great excuse to do exercise other than poun
 
 ## Related Posts
 
-- [Put Your Fitness to the Test with These Challenges...](https://fitness.allwomenstalk.com/put-your-fitness-to-the-test-with-these-challenges-fitness/)
+- [This Workout Gear Inspiration Will Get You Moving ...](https://fitness.allwomenstalk.com/this-workout-gear-inspiration-will-get-you-moving/)
 - [Lazy Ladies, Try to Finish These Fitness Challenge...](https://fitness.allwomenstalk.com/lazy-ladies-try-to-finish-these-fitness-challenges/)
 - [calories burned pumping](https://fitness.allwomenstalk.com/how-to-get-your-heart-pumping-and-burn-plenty-of-fat/)
-- [Fitness News - LISS is the Latest Thing ...](https://fitness.allwomenstalk.com/fitness-news-liss-is-the-latest-thing/)
-- [Fab Tips to Help You Start Exercising after a Brea...](https://fitness.allwomenstalk.com/tips-for-easing-back-into-your-workout-after-a-lazy-period/)
-- [7 Steps to Having Your Most Successful Run Ever .....](https://running.allwomenstalk.com/follow-these-steps-for-your-best-run-yet/)
 - [10 Workouts That Will Beat You up in a Good Way .....](https://fitness.allwomenstalk.com/workouts-that-wont-be-easy-on-you/)
-- [This Workout Gear Inspiration Will Get You Moving ...](https://fitness.allwomenstalk.com/this-workout-gear-inspiration-will-get-you-moving/)
+- [7 Steps to Having Your Most Successful Run Ever .....](https://running.allwomenstalk.com/follow-these-steps-for-your-best-run-yet/)
+- [Fitness News - LISS is the Latest Thing ...](https://fitness.allwomenstalk.com/fitness-news-liss-is-the-latest-thing/)
 - [10 Simple Exercises That Are Ridiculously 🤐 Easy ...](https://fitness.allwomenstalk.com/simple-exercises-that-are-ridiculously-effective/)
+- [Fab Tips to Help You Start Exercising after a Brea...](https://fitness.allwomenstalk.com/tips-for-easing-back-into-your-workout-after-a-lazy-period/)
+- [Put Your Fitness to the Test with These Challenges...](https://fitness.allwomenstalk.com/put-your-fitness-to-the-test-with-these-challenges-fitness/)
 - [The Positive Effects of Exercise on Your Body afte...](https://fitness.allwomenstalk.com/how-does-your-life-change-after-one-week-of-exercise/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
 - [Yoga for the Time-Challenged, Busy Woman ...](https://allwomenstalk.com/yoga-for-the-time-challenged-busy-woman/)
