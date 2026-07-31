@@ -3,7 +3,7 @@ title: "7 Running Goals to Make for the New Year ..."
 description: "Beat Your 5k Time; Run Your Longest Distance; Run Your Fastest Mile; Test Yourself in a Race; Run a Destination Race; More ..."
 url: "https://running.allwomenstalk.com/running-goals-to-make-for-the-new-year/"
 category: "running"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Running Goals to Make for the New Year ...
@@ -42,16 +42,16 @@ I hope you have enjoyed my list of running goals and I hope they have motivated 
 
 ## Related Posts
 
-- [7 Ways to Avoid Gym Germs and Keep Yourself from G...](https://health.allwomenstalk.com/ways-to-avoid-gym-germs-and-keep-yourself-from-getting-sick/)
-- [7 Fitness Tips for Busy Moms That Are Having Troub...](https://fitness.allwomenstalk.com/fitness-tips-for-busy-moms-that-are-having-trouble-fitting-in-fitness/)
-- [7 Types of People Who Can Benefit from Yoga ...](https://health.allwomenstalk.com/types-of-people-who-can-benefit-from-yoga/)
-- [7 Fun Fitness Trends from Years Gone by ...](https://fitness.allwomenstalk.com/fun-fitness-trends-from-years-gone-by/)
-- [zone 5 running](https://running.allwomenstalk.com/ways-to-get-into-the-running-zone-and-love-this-great-workout/)
 - [7 Run Downs on How Running Rocks ...](https://running.allwomenstalk.com/run-downs-on-how-running-rocks/)
+- [7 Fun Fitness Trends from Years Gone by ...](https://fitness.allwomenstalk.com/fun-fitness-trends-from-years-gone-by/)
+- [7 Ways to Avoid Gym Germs and Keep Yourself from G...](https://health.allwomenstalk.com/ways-to-avoid-gym-germs-and-keep-yourself-from-getting-sick/)
+- [7 Types of People Who Can Benefit from Yoga ...](https://health.allwomenstalk.com/types-of-people-who-can-benefit-from-yoga/)
 - [9 Ways to Enhance Your Workouts on a Plant-Based D...](https://vityle.com/ways-to-enhance-your-workouts-on-a-plant-based-diet/)
-- [7 Benefits of HIIT and How It Will Change Your Lif...](https://fitness.allwomenstalk.com/benefits-of-hiit-and-how-it-will-change-your-life/)
-- [7 Best Workouts for when the Gym is Full ...](https://fitness.allwomenstalk.com/best-workouts-for-when-the-gym-is-full/)
+- [7 Fitness Tips for Busy Moms That Are Having Troub...](https://fitness.allwomenstalk.com/fitness-tips-for-busy-moms-that-are-having-trouble-fitting-in-fitness/)
 - [7 Healthy Perks of Zumba That You've Got to Know a...](https://fitness.allwomenstalk.com/healthy-perks-of-zumba-that-youve-got-to-know-about/)
+- [7 Best Workouts for when the Gym is Full ...](https://fitness.allwomenstalk.com/best-workouts-for-when-the-gym-is-full/)
+- [zone 5 running](https://running.allwomenstalk.com/ways-to-get-into-the-running-zone-and-love-this-great-workout/)
+- [7 Benefits of HIIT and How It Will Change Your Lif...](https://fitness.allwomenstalk.com/benefits-of-hiit-and-how-it-will-change-your-life/)
 - [7 of My New Year Resolutions ...](https://allwomenstalk.com/7-of-my-new-year-resolutions/)
 - [7 Things I Will Put in My New Year's Resolution .....](https://allwomenstalk.com/7-things-i-will-put-in-my-new-years-resolution/)
 
