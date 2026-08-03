@@ -3,7 +3,7 @@ title: "7 Exercises to Give You a Super Sexy Running Body ..."
 description: "One Leg Squat; Jump Lunge; Jump Squat; Box Jumps; Squat; More ..."
 url: "https://running.allwomenstalk.com/exercises-to-give-you-a-super-sexy-running-body/"
 category: "running"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 Exercises to Give You a Super Sexy Running Body ...
@@ -42,13 +42,13 @@ Good luck with all of these great exercises. Make sure you stick with it and wor
 
 ## Related Posts
 
-- [7 Resolutions to Commit to That Will Take Your Wor...](https://fitness.allwomenstalk.com/resolutions-to-commit-to-that-willtake-your-workout-to-the-next-level/)
-- [7 Excuses Not to Use to Skip Your Workout ...](https://fitness.allwomenstalk.com/excuses-not-to-use-to-skip-your-workout/)
-- [cool workout gadgets](https://fitness.allwomenstalk.com/workout-gadgets-you-should-consider/)
 - [7 Ways Exercise Can Boost Other Areas of Your Life...](https://health.allwomenstalk.com/ways-exercise-can-boost-other-areas-of-your-life-too/)
-- [7 Exercises to Help You Build up Your Running Dist...](https://fitness.allwomenstalk.com/exercises-to-help-you-build-up-your-running-distance-increase-speed-fitness/)
 - [7 Exercises to up the Intensity of Your Workouts ....](https://fitness.allwomenstalk.com/exercises-to-up-the-intensity-of-your-workouts/)
+- [7 Resolutions to Commit to That Will Take Your Wor...](https://fitness.allwomenstalk.com/resolutions-to-commit-to-that-willtake-your-workout-to-the-next-level/)
+- [cool workout gadgets](https://fitness.allwomenstalk.com/workout-gadgets-you-should-consider/)
 - [The Busy Girl's Guide to Starting Yoga ...](https://health.allwomenstalk.com/the-busy-girls-guide-to-starting-yoga/)
+- [7 Exercises to Help You Build up Your Running Dist...](https://fitness.allwomenstalk.com/exercises-to-help-you-build-up-your-running-distance-increase-speed-fitness/)
+- [7 Excuses Not to Use to Skip Your Workout ...](https://fitness.allwomenstalk.com/excuses-not-to-use-to-skip-your-workout/)
 - [7 Workouts for a Body to Rock Any Outfit like a Ce...](https://fitness.allwomenstalk.com/workouts-for-a-body-to-rock-any-outfit-like-a-celebrity/)
 - [13 Awesome Pieces of Home Exercise Equipment ...](https://fitness.allwomenstalk.com/awesome-pieces-of-home-exercise-equipment/)
 - [7 Fitness Inspirations for 2015 ...](https://inspiration.allwomenstalk.com/fitness-inspirations-for/)
