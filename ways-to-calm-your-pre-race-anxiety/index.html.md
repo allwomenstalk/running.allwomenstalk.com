@@ -3,7 +3,7 @@ title: "7 Ways to Calm Your Pre-race Anxiety ..."
 description: "Register in Advance; Pick up Race Packet; Review the Course and Envision Success; Listen to Music; Take a Deep Breath; More ..."
 url: "https://running.allwomenstalk.com/ways-to-calm-your-pre-race-anxiety/"
 category: "running"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 7 Ways to Calm Your Pre\-race Anxiety ...
@@ -42,16 +42,16 @@ Now that you know how to calm yourself and face your fears race day, relax and h
 
 ## Related Posts
 
-- [7 Ways to Avoid Being Lazy on Your Day off ...](https://inspiration.allwomenstalk.com/ways-to-avoid-being-lazy-on-your-day-off/)
-- [how to perform self hypnosis](https://health.allwomenstalk.com/ways-to-perform-self-hypnosis/)
 - [7 Ways to Break the Habit of Being Chronically Lat...](https://inspiration.allwomenstalk.com/ways-to-break-the-habit-of-being-chronically-late/)
-- [7 Ways to Look after Your Mental Health ...](https://health.allwomenstalk.com/ways-to-look-after-your-mental-health/)
-- [happy valentine's day boston terrier](https://lifestyle.allwomenstalk.com/photos-of-cute-pets-to-make-you-giggle/)
-- [7 Easy Ways to Overcome a Bad Mood ...](https://inspiration.allwomenstalk.com/easy-ways-to-overcome-a-bad-mood/)
-- [7 Refreshing Activities for a Mental Health Day .....](https://health.allwomenstalk.com/refreshing-activities-for-a-mental-health-day/)
-- [7 Simple Ways to Improve Your Mental Clarity ...](https://health.allwomenstalk.com/simple-ways-to-improve-your-mental-clarity/)
 - [7 Ways to Prevent Depression from Striking You ...](https://health.allwomenstalk.com/ways-to-prevent-depression-from-striking-you/)
+- [how to perform self hypnosis](https://health.allwomenstalk.com/ways-to-perform-self-hypnosis/)
+- [7 Easy Ways to Overcome a Bad Mood ...](https://inspiration.allwomenstalk.com/easy-ways-to-overcome-a-bad-mood/)
+- [happy valentine's day boston terrier](https://lifestyle.allwomenstalk.com/photos-of-cute-pets-to-make-you-giggle/)
+- [7 Simple Ways to Improve Your Mental Clarity ...](https://health.allwomenstalk.com/simple-ways-to-improve-your-mental-clarity/)
 - [7 Interesting Things That Worsen Depression ...](https://health.allwomenstalk.com/interesting-things-that-worsen-depression/)
+- [7 Refreshing Activities for a Mental Health Day .....](https://health.allwomenstalk.com/refreshing-activities-for-a-mental-health-day/)
+- [7 Ways to Avoid Being Lazy on Your Day off ...](https://inspiration.allwomenstalk.com/ways-to-avoid-being-lazy-on-your-day-off/)
+- [7 Ways to Look after Your Mental Health ...](https://health.allwomenstalk.com/ways-to-look-after-your-mental-health/)
 - [7 Ways to Get Ready for a Test Fast ...](https://allwomenstalk.com/7-ways-to-get-ready-for-a-test-fast/)
 - [8 Ways to Calm down Quickly ...](https://allwomenstalk.com/8-ways-to-calm-down-quickly/)
 
