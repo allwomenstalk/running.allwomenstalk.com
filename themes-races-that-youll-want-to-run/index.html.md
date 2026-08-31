@@ -3,7 +3,7 @@ title: "9 Themed Races That You'll Want to Run ..."
 description: "The Color Run; The NYC Pizza Run; Walt Disney Fun Run; The Electric Run; The Krispy Kreme Challenge; More ..."
 url: "https://running.allwomenstalk.com/themes-races-that-youll-want-to-run/"
 category: "running"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 9 Themed Races That You'll Want to Run ...
@@ -68,16 +68,16 @@ I enjoy working out if it’s fun, and with so many themed races out there, I ca
 
 ## Related Posts
 
-- [children s party themes](https://parenting.allwomenstalk.com/childrens-party-theme-ideas/)
-- [7 Ways to Make Memories That Will Last ...](https://diy.allwomenstalk.com/ways-to-make-memories-that-will-last/)
-- [7 Super Cheap Things to do with Your Kids in the S...](https://parenting.allwomenstalk.com/super-cheap-things-to-do-with-your-kids-in-the-spring/)
-- [7 Things to do in Austin, Texas ...](https://travel.allwomenstalk.com/things-to-do-in-austin-texas/)
-- [7 Fun Family Things to do in Berlin ...](https://travel.allwomenstalk.com/fun-family-things-to-do-in-berlin/)
 - [9 Things to do This Spring That Will Make You Happ...](https://inspiration.allwomenstalk.com/things-to-do-this-spring-that-will-make-you-happy/)
-- [7 Great and Unexpected Things to do This Spring .....](https://lifestyle.allwomenstalk.com/great-and-unexpected-things-to-do-this-spring/)
+- [7 Fun Family Things to do in Berlin ...](https://travel.allwomenstalk.com/fun-family-things-to-do-in-berlin/)
+- [7 Things to do in Austin, Texas ...](https://travel.allwomenstalk.com/things-to-do-in-austin-texas/)
+- [funny things to do on a first date](https://love.allwomenstalk.com/fun-things-to-do-on-a-first-date/)
 - [realistic bucket list](https://funny.allwomenstalk.com/cheeky-goals-to-put-on-your-realistic-bucket-list/)
 - [7 Nice Things to do for Yourself when You Are Sick...](https://health.allwomenstalk.com/nice-things-to-do-for-yourself-when-you-are-sick/)
-- [funny things to do on a first date](https://love.allwomenstalk.com/fun-things-to-do-on-a-first-date/)
+- [children s party themes](https://parenting.allwomenstalk.com/childrens-party-theme-ideas/)
+- [7 Super Cheap Things to do with Your Kids in the S...](https://parenting.allwomenstalk.com/super-cheap-things-to-do-with-your-kids-in-the-spring/)
+- [7 Ways to Make Memories That Will Last ...](https://diy.allwomenstalk.com/ways-to-make-memories-that-will-last/)
+- [7 Great and Unexpected Things to do This Spring .....](https://lifestyle.allwomenstalk.com/great-and-unexpected-things-to-do-this-spring/)
 - [9 Fall Date Ideas ...](https://allwomenstalk.com/9-fall-date-ideas/)
 - [10 Best Birthday Party Themes ...](https://allwomenstalk.com/10-best-birthday-party-themes/)
 
