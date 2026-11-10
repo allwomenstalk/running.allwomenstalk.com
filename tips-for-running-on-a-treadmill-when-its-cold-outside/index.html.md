@@ -1,9 +1,9 @@
 ---
 title: "9 Tips for Running on a Treadmill when It's Cold outside ..."
-description: "Gather Your Gear; What to Wear?; Warm up; Start Slow; It Can’t Be Uphill Forever!; More ..."
+description: "Gather Your Gear; What to Wear?; Warm up; Start Slow; It Can’t Be Uphill Forever!"
 url: "https://running.allwomenstalk.com/tips-for-running-on-a-treadmill-when-its-cold-outside/"
 category: "running"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 9 Tips for Running on a Treadmill when It's Cold outside ...
